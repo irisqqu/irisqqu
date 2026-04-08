@@ -1,7 +1,7 @@
 ## Ი︵𐑼 . . 𝗓 ᙆ z ᙆ.
 
 <!--
-**irisqqu/irisqqu** is a ✨ _special_ ✨ 
+**irisqqu/irisqqu** is ✨ _koolaid_ ✨ 
 
 ︎
 
